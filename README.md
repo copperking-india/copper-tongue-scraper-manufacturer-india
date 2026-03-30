@@ -1,5 +1,3 @@
-# copper-tongue-scraper-manufacturer-india
-Leading Copper Tongue Scraper Manufacturer, Supplier &amp; Exporter in India | CopperKing
 # Copper Tongue Scraper Manufacturer in India
 
 CopperKing is a leading manufacturer, supplier, and exporter of high-quality copper tongue scrapers, copper bottles, and copper utensils in India.
